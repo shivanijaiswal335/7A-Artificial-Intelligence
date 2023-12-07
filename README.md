@@ -1,1 +1,0 @@
-# 7A-Artificial-Intelligence
